@@ -1,0 +1,1 @@
+# Patrim-nio-religioso-de-Monte-Alegre
